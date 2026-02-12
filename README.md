@@ -1,0 +1,1 @@
+# sozialme-case-study
